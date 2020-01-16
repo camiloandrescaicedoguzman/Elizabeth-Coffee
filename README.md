@@ -1,0 +1,1 @@
+This is Elizabeth Coffee project that aims to help small coffee Colombian farmers, specially women, to promote their farms as a tourist destination and also market their coffee products worldwide.
